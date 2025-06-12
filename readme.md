@@ -6,7 +6,7 @@ I am a detail-oriented and motivated Architectural Professional with over 4 year
 - 👋 Hi, I’m Himanshi Nikhare
 - 🌍 I’m living in United Kingdom
 - 🎓 I’m recently graduated Msc in Digital Architecture & Construction from Nottingham Trent University
-- 🖥️ View my Portfolio at ([add link](https://heyzine.com/flip-book/77a6c35b47.html))
+- 🖥️ View my Portfolio at ([link](https://heyzine.com/flip-book/77a6c35b47.html))
 - 👀 I'm currently on the lookout for exciting job opportunities where I can bring my enthusiasm and skills to a passionate and dynamic team.
 - 📫 Mail me at himanshi.nikhare.gml@gmail.com
 - 📱 Contact me at +44 7771090409
